@@ -2,6 +2,8 @@
 
 Multi-Screen processes project.
 
+[Playlist](https://www.youtube.com/playlist?list=PLG6918Ng_f9uxAoWDqO0IwThfniaWknwF)
+
 # **Links(링크)**
 
 * [JkhTV YouTube(장경혁tv)](https://www.youtube.com/channel/UC0lR1aYGgOhFioC3IsazUtw)
